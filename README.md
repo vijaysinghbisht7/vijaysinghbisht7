@@ -4,7 +4,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 Data Analyst
 ------------
 
-I am Business Analyst Graduate with 2+ years of experience in Market Research at Numerator
+I am a Business Analyst Graduate with 2+ years of experience in Market Research at Numerator
 
 * 🌍  I'm based in Birmingham
 * ✉️  You can contact me at [bisht.vijay1204@gmail.com](mailto:bisht.vijay1204@gmail.com)
